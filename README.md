@@ -1,5 +1,6 @@
 # 💫 About Me:
-I'm continue learning and  I like this <br>Let's Code Together
+Hi I'm Bahadır who continue learning and  I like this 
+<br>Let's Code Together<br>
 
 
 ## 🌐 Socials:
